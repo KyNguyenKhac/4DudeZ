@@ -1,3 +1,0 @@
-# 4DudeZ
-halo
-đâsd
